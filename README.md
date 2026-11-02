@@ -1,1 +1,0 @@
-# data-diri-1
